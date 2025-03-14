@@ -1,6 +1,5 @@
 # 💫 About Me:
 I'm currently a 2nd Year IT Student from CVSU Naic<br>I love BINI🤍<br>Philippians 4:13 is my favorite Bible Verse<br>"I can do all things through Christ who strengthens me"
-<video src="<iframe width="560" height="315" src="https://www.youtube.com/embed/bTWFbMnZvN8?si=xiEJb3FNBHdB4Bt6&amp;controls=0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>"></video>
 
 
 ## 🌐 Socials:
