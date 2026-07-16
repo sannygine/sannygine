@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, I'm Sanny Gine<br>👩‍💻 I'm currently 2nd Year IT student <br>🏫 from CVSU Naic<br>⚡ I love BINI🤍<br>Philippians 4:13 is my favorite verse <br>"I can do all things through Christ who strengthens me '<br> <br>
+Hi, I'm Sanny Gine<br>👩‍💻 I'm currently 2nd Year IT student <br>🏫 from CVSU Naic<br>
 
 
 ## 🌐 Socials:
